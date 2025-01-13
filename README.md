@@ -4,7 +4,7 @@
 
 She/Her   
 [Portfolio](https://www.linkedin.com) 
-[Email] (m69zhou@uwaterloo.ca) | [LinkedIn](https://www.linkedin.com) | [Instagram](https://www.instagram.com)
+ | [LinkedIn](https://www.linkedin.com) | [Instagram](https://www.instagram.com) | [Email] (m69zhou@uwaterloo.ca)
 
 ---
 ## About Me
