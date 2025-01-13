@@ -3,7 +3,7 @@
 **Software Engineer | UI/UX Designer | Firmware Developer**
 
 She/Her   
-Portfolio - https://cc30-25.github.io/cilochou/
+[Portfolio](https://www.linkedin.com) 
 [Email] (m69zhou@uwaterloo.ca) | [LinkedIn](https://www.linkedin.com) | [Instagram](https://www.instagram.com)
 
 ---
