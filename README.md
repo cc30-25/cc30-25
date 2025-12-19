@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Cilo Chou
+# 👋 Hi, I'm Cilo Zhou
 
 **Software Engineer | UI/UX Designer | Firmware Developer**
 
